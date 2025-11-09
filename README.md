@@ -1,4 +1,4 @@
-# Dispatch: Superhero Workplace Management - Complete Edition
+# Dispatch Deluxe 1-6 Episode Download
 
 ## Game Package Information
 
